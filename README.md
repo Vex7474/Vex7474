@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing for now...
 - 📫 How to reach me provide the link soon...
 - 😄 Pronouns: plastic/bag
-- ⚡ Fun fact: im gaeh
+- ⚡ Fun fact:
 
 <!---
 Vex7474/Vex7474 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
